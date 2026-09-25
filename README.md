@@ -1,1 +1,0 @@
-https://javiermedinamoreno.github.io/
