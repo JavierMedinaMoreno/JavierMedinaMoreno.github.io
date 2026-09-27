@@ -1,1 +1,1 @@
-JavierMedinaMoreno.github.io
+javiermedinamoreno.github.io
